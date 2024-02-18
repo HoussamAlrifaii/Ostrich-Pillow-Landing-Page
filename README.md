@@ -1,2 +1,1 @@
-# Landing-Page
-Landing Page
+Introducing the Ostrich Pillow, your cozy haven for perfect relaxation and rejuvenation. Whose design and comfort come first, this pillow is designed to revolutionize the art of napping. The innovative design with a warm, airy fabric that lightly embraces your head and your neck, provides comfortable sleep and relieves tension from your mind, eventually allowing you to relax to the dark.
